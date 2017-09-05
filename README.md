@@ -1,0 +1,2 @@
+# IA
+Inteligencxia artificial m
